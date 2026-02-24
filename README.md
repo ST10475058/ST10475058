@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧠 Software Developer <br>💎 Entrepreneur <br>| Website & App Creator <br>| Problem-Solver ✨ <br>Crafting innovative, visually stunning digital experiences 🍀 Getting things done, one line of code at a time 💫<br><br>## 🌐 Socials:<br>[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/linkedin.com/in/siyethemba-xulu-463630380) https://visitcount.itsvg.in)<br><br><!-- Proudly created with GPRM ( https://gprm.itsvg.in ) --><br>
+🧠 Software Developer <br>💎 Entrepreneur <br>| Website & App Creator <br>| Problem-Solver ✨ <br>Crafting innovative, visually stunning digital experiences 🍀 Getting things done, one line of code at a time 💫<br><br>## 🌐
 
 
 ## 🌐 Socials
