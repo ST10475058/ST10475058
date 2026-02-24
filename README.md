@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧠 Software Developer <br>💎 Entrepreneur <br>| Website & App Creator <br>| Problem-Solver ✨ <br>Crafting innovative, visually stunning digital experiences 🍀 Getting things done, one line of code at a time 💫<br><br>## 🌐
+🧠 Software Developer <br>💎 Entrepreneur <br>| Website & App Creator <br>| Problem-Solver ✨ <br>Crafting innovative, visually stunning digital experiences 🍀 Getting things done, one line of code at a time 💫
 
 
 ## 🌐 Socials
